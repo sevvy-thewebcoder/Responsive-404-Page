@@ -10,4 +10,4 @@
 
 💙 Join me on Instagram for more projects like this. https://www.instagram.com/webcodersevvy/
 
-preview img
+preview.png
